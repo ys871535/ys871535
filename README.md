@@ -5,10 +5,10 @@ My name is Yajaira Saavedra
 I like watching t.v, listening to music,and reading in my free time. 
 
 [image](https://user-images.githubusercontent.com/128835472/228311105-9cb6ca1c-4b2b-436d-be96-f98987a4c338.png)
-
 [image](https://user-images.githubusercontent.com/128835472/228311596-9b3671a5-df08-4ada-a2a9-63d706318905.png)
-
 [image](https://user-images.githubusercontent.com/128835472/228311428-d9632d20-50a8-4673-9de8-07d0b5845a43.png)
+
+
 
 
 
